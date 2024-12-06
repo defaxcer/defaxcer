@@ -4,7 +4,7 @@ e- 👋 Hi, I’m @defaxcer
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...dcs
 - 😄 Pronouns: ...
-- ⚡ Fun fact: ...er
+- ⚡ Fun fact: ...ersdf
 5466412sdfasd
 <!---45
 defaxcer/defaxcer is a ✨ special ✨ repository 24545

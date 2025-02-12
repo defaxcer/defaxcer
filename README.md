@@ -1,7 +1,7 @@
 nbgf63e- 👋 Hi, I’m @defaxcer[[[](url)](url)](url)
 - 👀 I’m interested in ...8852
 - 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...47447
+- 💞️ I’m looking to collaborate on ...47447ghnngh
 - 📫 How to reach me ...dcs45453453hjmhjcvbnnn
 - 😄 Pronouns: ...77712536bfdergfew
 - ⚡ Fun fact: ...ersdfdfs4545645741

@@ -3,7 +3,7 @@ nbgf63e- 👋 Hi, I’m @defaxcer[[[](url)](url)](url)
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on ...47447ghnngh
 - 📫 How to reach me ...dcs45453453hjmhjcvbnnn
-- 😄 Pronouns: ...77712536bfdergfew
+- 😄 Pronouns: ...77712536bfdergfew8596+
 - ⚡ Fun fact: ...ersdfdfs4545645741
 5466412sdfasd4585266dfsdsd
 defaxcer/defaxcer is a ✨ special ✨ sdfrepository 24dhg545edwcxv
